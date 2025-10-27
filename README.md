@@ -1,1 +1,0 @@
-# SIRE506_Assignment_Epidemiology
